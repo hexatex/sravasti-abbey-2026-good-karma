@@ -10,6 +10,7 @@ For more information visit: https://sravastiabbey.org/event/good-karma-memorial-
 * Good Karma by Thubten Chodron
 	* Buy the book if you can, it's great.
 	* If you cannot there are limited digital copies available here: https://archive.org/details/goodkarmahowtocr0000thub/page/n15/mode/2up
+        * You can also find a copy at your local library or just follow along with the videos
 
 ## Pre-Retreat Preparation
 * Request time off work and clear your schedule for the duration of the retreat
