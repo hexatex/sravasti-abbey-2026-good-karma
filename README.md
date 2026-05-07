@@ -1,7 +1,9 @@
 # Memorial day weekend retreat 2026 unofficial guide
 My unofficial at home guide for Sravasti Abbeys 2026 Memorial Day Weekend "Good Karma" retreat, happening from May 22 to May 25.
 
-https://sravastiabbey.org/event/good-karma-memorial-day-weekend-retreat-2026/
+While visiting Sravasti Abbey in person is ideal, that is not always possible. If needed, feel free to use this guide or adapt it into your own version for practicing at home.
+
+For more information visit: https://sravastiabbey.org/event/good-karma-memorial-day-weekend-retreat-2026/
 
 ## Materials
 * Meditation tracks from this guide: https://www.shambhala.com/guidedbuddhistmeditations/
@@ -10,11 +12,11 @@ https://sravastiabbey.org/event/good-karma-memorial-day-weekend-retreat-2026/
 	* If you cannot there are limited digital copies available here: https://archive.org/details/goodkarmahowtocr0000thub/page/n15/mode/2up
 
 ## Pre-Retreat Preparation
-* Take time of work, clear your schedule for May 22 to May 25
+* Request time off work and clear your schedule for the duration of the retreat
 * Get a copy of Good Karma by Venerable Chodron
-* Read up to verse 45 in preparation for the retreat. That is page 104 in my copy.
+* (optional) Read up to verse 45 in preparation for the retreat. That is page 104 in my copy.
 	* This will get you caught up
-	* Alternately you can watch all previous retreat videos
+	* Alternately you can watch all previous retreat videos, but this will take longer
 * Clean your room
 * Make sure you are waking up somewhere between 4 and 5 am days in advance so you are not sleepy
 * Practice your meditation in advance
@@ -62,6 +64,7 @@ An at home version of the retreat schedule.
 ### Morning Meditation - 5:30am - 1 hour 30 minute
 The guided meditation tracks referenced are [available here](https://www.shambhala.com/guidedbuddhistmeditations/)
 
+* Start timer in Insight Timer app (see Pre-Retreat Preparation)
 * Meditation on the Buddha (Track A2)
 * Breath meditation track (Track A3)
 * Next Lamrim analysis track (Track B1-G9 what ever is next for you)
@@ -79,6 +82,7 @@ A Lamrim style analytical meditation, using some of the guided meditation tracks
 
 The guided meditation tracks referenced are [available here](https://www.shambhala.com/guidedbuddhistmeditations/)
 
+* Start timer in Insight Timer app (see Pre-Retreat Preparation)
 * Short Recitations (Track A4)
 * Analysis on the lesson regarding the wheel of sharp weapons - as long as it takes to produce strong feeling of insight
 * Rest in the understanding produced by your insight until 55 minute bell rings
