@@ -10,6 +10,7 @@ https://sravastiabbey.org/event/good-karma-memorial-day-weekend-retreat-2026/
 	* If you cannot there are limited digital copies available here: https://archive.org/details/goodkarmahowtocr0000thub/page/n15/mode/2up
 
 ## Pre-Retreat Preparation
+* Take time of work, clear your schedule for May 22 to May 25
 * Get a copy of Good Karma by Venerable Chodron
 * Read up to verse 45 in preparation for the retreat. That is page 104 in my copy.
 	* This will get you caught up
@@ -26,39 +27,40 @@ https://sravastiabbey.org/event/good-karma-memorial-day-weekend-retreat-2026/
 ## At Home schedule
 An at home version of the retreat schedule.
 
-If things do go to plan, disturbances occur: practice patience, compassion, equanimity! It's alright, it doesn't have to go perfectly!! Be grateful to any disturbances and the opportunity to practice that they present.
+> If things do not go as planned, or if you are disturbed, practice patience, compassion, and equanimity. It’s alright — the retreat does not have to go perfectly. Be grateful for disturbances and the opportunity they provide to practice. You are probably not in a perfect environment, and that is to be expected when retreating from home. Just do your best.
 
-**Friday**
-`3pm` Meditation (same as the morning meditation)
-`4:30pm`
-* Introductory Preparation
+### Friday
+* **3pm** Meditation (same as the morning meditation)
+* **4:30pm** Introductory Preparation
 	* Check the pre-retreat preparation steps from above ^
 	* Review this guide
 	* Put your phone in airplane mode, and turn on silent mode (for both call and online notification)
+	* Let people know you will be unavailable
 	* Clean your room
 	* Prepare mentally
-`6pm` Teaching on Following in the Buddha’s Footsteps—YouTube Live
+* **6pm** Teaching on Following in the Buddha’s Footsteps—[YouTube Live](https://www.youtube.com/playlist?list=PL8DRNsjySiibAAuf3cjtMCU4j5J-uMtB5)
 
-**Saturday & Sunday**
-* `5:30 – 7am` Morning Meditation
-* `7am - 9am` Silent Breakfast then pre-read of upcoming lesson if there is time **Take notes**
-* `9 – 10:30am` Teaching—YouTube Live **Take notes**
-* `11 – 11:55am` Analytical Meditation
-* `12 – 2pm` Silent Lunch - big lunch
-* `2 – 4pm`
+### Saturday & Sunday
+* **5:30 – 7am** Morning Meditation
+* **7am - 9am** Silent Breakfast then pre-read of upcoming lesson if there is time **Take notes**
+* **9 – 10:30am** Teaching—[YouTube Live](https://www.youtube.com/playlist?list=PL8DRNsjySiiZhUWTqmWzoI6WqvhyTiuy0) **Take notes**
+* **11 – 11:55am** Analytical Meditation
+* **12 – 2pm** Silent Lunch - big lunch
+* **2 – 4pm**
 	* Review the previous teaching
 	* Pre-read and take notes for upcoming teaching **Take notes**
-* `4:30 - 6pm` Teaching—YouTube Live **Take notes**
-* `7pm` Analytical Meditation
+* **4:30 - 6pm** Teaching—[YouTube Live](https://www.youtube.com/playlist?list=PL8DRNsjySiiZhUWTqmWzoI6WqvhyTiuy0) **Take notes**
+* **7pm** Analytical Meditation
 
-**Monday**
-* `5:30 – 7am` Morning Meditation
-* `9 - 10:30am` Teaching—YouTube Live
-* `11 - 11:55am` Analytical Meditation
-* `12 – 2pm` Lunch, clean up
+### Monday
+* **5:30 – 7am** Morning Meditation
+* **9 - 10:30am** Teaching—[YouTube Live](https://www.youtube.com/playlist?list=PL8DRNsjySiiZhUWTqmWzoI6WqvhyTiuy0) **Take notes**
+* **11 - 11:55am** Analytical Meditation
+* **12 – 2pm** Lunch, clean up
 
-## Morning Meditation - 5:30am - 1 hour 30 minute
-Follow the guided meditations online
+## Meditation & Lesson Outlines
+### Morning Meditation - 5:30am - 1 hour 30 minute
+The guided meditation tracks referenced are [available here](https://www.shambhala.com/guidedbuddhistmeditations/)
 
 * Meditation on the Buddha (Track A2)
 * Breath meditation track (Track A3)
@@ -67,13 +69,15 @@ Follow the guided meditations online
 * Metta until final bell - 10 minutes
 * Dedication track
 
-## Live Streamed Lesson
+### Live Streamed Lesson
 * If you have time in advance pre-read the upcoming verses and commentary in Good Karma
 * Take notes, points are for analyses in the meditation.
 * At the end review your notes in preparation for the meditation session
 
-## Post-Lesson Meditation - 11am & 7pm - 55 minutes
+### Post-Lesson Meditation - 11am & 7pm - 55 minutes
 A Lamrim style analytical meditation, using some of the guided meditation tracks.
+
+The guided meditation tracks referenced are [available here](https://www.shambhala.com/guidedbuddhistmeditations/)
 
 * Short Recitations (Track A4)
 * Analysis on the lesson regarding the wheel of sharp weapons - as long as it takes to produce strong feeling of insight
