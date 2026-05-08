@@ -71,7 +71,7 @@ The guided meditation tracks referenced are [available here](https://www.shambha
 * Next Lamrim analysis track (Track B1-G9 what ever is next for you)
 * Resting meditation until first bell
 * Metta until final bell - 10 minutes
-* Dedication track
+* Dedication track (Track A5)
 
 ### Live Streamed Lesson
 * If you have time in advance pre-read the upcoming verses and commentary in Good Karma
