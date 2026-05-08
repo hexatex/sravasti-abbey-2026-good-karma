@@ -5,6 +5,22 @@ While visiting Sravasti Abbey in person is ideal, that is not always possible. I
 
 For more information visit: https://sravastiabbey.org/event/good-karma-memorial-day-weekend-retreat-2026/
 
+## Table of Contents
+<!-- TOC start (generated with https://github.com/derlin/bitdowntoc) -->
+
+* [Materials](#materials)
+* [Pre-Retreat Preparation](#pre-retreat-preparation)
+* [At Home schedule](#at-home-schedule)
+   + [Friday](#friday)
+   + [Saturday & Sunday](#saturday--sunday)
+   + [Monday](#monday)
+* [Meditation & Lesson Outlines](#meditation--lesson-outlines)
+   + [Morning Meditation - 5:30am - 1 hour 30 minute](#morning-meditation---530am---1-hour-30-minute)
+   + [Live Streamed Lesson](#live-streamed-lesson)
+   + [Post-Lesson Meditation - 11am & 7pm - 55 minutes](#post-lesson-meditation---11am--7pm---55-minutes)
+
+<!-- TOC end -->
+
 ## Materials
 * Meditation tracks from this guide: https://www.shambhala.com/guidedbuddhistmeditations/
 * Good Karma by Thubten Chodron
